@@ -13,5 +13,5 @@
 ![object1](https://github.com/user-attachments/assets/efcd3b4e-0d34-4c8f-a11f-31c7df220ff7)
 ![object_new](https://github.com/user-attachments/assets/ffe6e09f-2d73-4fd2-8708-9d79b1dd0daf)
 ![object12](https://github.com/user-attachments/assets/3e6fc8dd-9419-4890-b4c7-66040093c491)
-![getimg_ai_img-zGC9gqsV3LTM7Ow1Szbdj (4)](https://github.com/user-attachments/assets/ee1d71de-fb70-4c1c-ac93-ace7334223aa)
+![getimg_ai_img-zGC9gqsV3LTM7Ow1Szbdj (2)](https://github.com/user-attachments/assets/ecded778-c26b-4ce6-adcf-9dfa07829f16)
 
