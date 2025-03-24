@@ -1,7 +1,6 @@
 # AiImagesCollection
 
 
-https://github.com/user-attachments/assets/e7c5cc16-039d-435a-af84-c6530495ab2c
 ![Image](https://github.com/user-attachments/assets/f4400a3c-18a8-455a-b576-6500ecebf69e)
 ![Image](https://github.com/user-attachments/assets/7f1b9f3d-dd99-49b5-829c-348d720c1de6)
 ![Image](https://github.com/user-attachments/assets/5944c592-5f61-4a74-812e-e7837b88e409)
