@@ -14,3 +14,4 @@
 ![Empropr costume girl](https://github.com/user-attachments/assets/9ef033ee-7985-4863-9eb8-503e5831b589)
 ![smoke girl](https://github.com/user-attachments/assets/a37196da-d7f4-40be-b83c-fac009e0d48f)
 ![minions](https://github.com/user-attachments/assets/6a801a5a-2095-4878-8c30-b04b2f006c00)
+![robot](https://github.com/user-attachments/assets/d04144d8-c8c1-47fe-b13c-234df85c81c0)
